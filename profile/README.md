@@ -7,8 +7,8 @@ An organization dedicated to *researching* and *modding* **Luigi's Mansion 2** a
 
 <br>
 
-*Tools* for *modding* **Luigi's Mansion 2** and **Luigi's Mansion 2 HD** will be found on this page as well as our [*GameBanana*](https://gamebanana.com/studios/37863)'s.
-> **The more we discover, the more are to come!**
+Tools for *modding* **Luigi's Mansion 2** and **Luigi's Mansion 2 HD** will be found on this page<br>
+**The more we discover, the more are to come!**
 
 <br>
 
