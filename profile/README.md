@@ -3,7 +3,7 @@
 </h1>
 
 An organization dedicated to *researching* and *modding* **Luigi's Mansion 2** and **Luigi's Mansion 2 HD**.<br>
-Mods and cocumentaries from our members can be found on our [*Gamebanana* page](https://gamebanana.com/studios/37863).
+Mods and documentaries from our members can be found on our [*Gamebanana* page](https://gamebanana.com/studios/37863).
 
 <br>
 
