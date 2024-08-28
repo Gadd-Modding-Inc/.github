@@ -7,7 +7,7 @@ An organization dedicated to *researching* and *modding* **Luigi's Mansion 2** a
 
 <br>
 
-Tools for *modding* **Luigi's Mansion 2** and **Luigi's Mansion 2 HD** will be found on this page as well as our [*GameBanana*](https://gamebanana.com/studios/37863)'s.
+*Tools* for *modding* **Luigi's Mansion 2** and **Luigi's Mansion 2 HD** will be found on this page as well as our [*GameBanana*](https://gamebanana.com/studios/37863)'s.
 > **The more we discover, the more are to come!**
 
 <img src="Gadd Modding Incorporated - Flag.png" width="75">
