@@ -12,4 +12,6 @@ Modding tools will be found here.
 > We are still recruiting members!<br>
 > If you have a good set of skills and have made a strong start on *researching* or *modding* **Luigi's Mansion 2** or **Luigi's Mansion 2 HD**, feel free to send us a **Join Request** on *GameBanana* to join our organization!
 
+<br>
+
 To submit a **Join Request**, open the "**Join**" tab and write a convincing **Join Reason**, all seen on our [*Gamebanana* page](https://gamebanana.com/studios/37863).
