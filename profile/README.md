@@ -8,7 +8,7 @@ An organization dedicated to *researching* and *modding* **Luigi's Mansion 2** a
 <br>
 
 *Tools* for *modding* both games will be found on this page very soon!<br>
-> **The more we discover, the more are to come!** <br>
+> **The more are to come the more we discover!** <br>
 <h1 align="center">
   <img src="Flag.png" width="40">
   Recruiting Members!
